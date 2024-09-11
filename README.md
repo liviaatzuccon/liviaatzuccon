@@ -57,6 +57,7 @@ Quando não estou lendo, estou ouvindo música. Minha artista favorita é (rulfe
 [![Linkedin](https://img.shields.io/badge/-LinkedIn-blue?style=flat-square&logo=Linkedin&logoColor=white&link=https://www.linkedin.com/in/liviaatzuccon/)](https://www.linkedin.com/in/liviaatzuccon/)
 [![Hotmail Badge](https://img.shields.io/badge/-livia.afonsotz@hotmail.com-0078d4?style=flat-square&logo=Outlook&logoColor=white&link=mailto:livia.afonsotz@hotmail.com)](mailto:livia.afonsotz@hotmail.com)
 [![GitHub](https://img.shields.io/github/followers/liviaatzuccon?label=follow&style=social&logo=github)](https://github.com/liviaatzuccon)
+[Portfólio](https://sites.google.com/view/portflio-liviaatzuccon/p%C3%A1gina-inicial)
 
 
 XOXO!     
